@@ -1,6 +1,6 @@
 divider placeholder
 
-<p align="center">" quote . " </p>
+<p align="center">" post-mall encounter w/ seong-je when si-eun goes to talk to baekjin " </p>
 
 graphic placeholder
 
