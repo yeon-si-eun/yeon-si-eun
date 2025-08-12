@@ -1,6 +1,6 @@
 divider placeholder
 
-<p align="center">" post-mall encounter w/ seong-je when si-eun goes to talk to baekjin " </p>
+<p align="center">" if i see you around su - ho 's hospital again , i 'll kill you all . " </p>
 
 graphic placeholder
 
