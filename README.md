@@ -10,5 +10,5 @@
 <p align="center">sharing <ins>griefer</ins> yume .</p>
 
  <img width="2800" height="250" alt="IMG_2264" src="https://github.com/user-attachments/assets/946f294d-6d3c-4d86-a8ef-c5dbaf3a961a" />
-<p align="center"> <img src= "https://github.com/user-attachments/assets/62ac50ec-2216-4937-b8f0-cfdbfde61c6c" width="25">  <img src= "https://github.com/user-attachments/assets/4bde0a03-2c22-44c9-b95a-5f712c74f6ab" width="25">  <img src= "https://github.com/user-attachments/assets/10b80471-0acf-4e47-9bb6-e9300ca803ea" width="25"> </p>
+<p align="center"> <img src= "https://github.com/user-attachments/assets/62ac50ec-2216-4937-b8f0-cfdbfde61c6c" width="20">  <img src= "https://github.com/user-attachments/assets/4bde0a03-2c22-44c9-b95a-5f712c74f6ab" width="20">  <img src= "https://github.com/user-attachments/assets/10b80471-0acf-4e47-9bb6-e9300ca803ea" width="20"> </p>
 <img width="2800" height="250" alt="IMG_2261" src="https://github.com/user-attachments/assets/3ff0442e-ed4a-4abf-8b0a-a92cdb471ab3" />
