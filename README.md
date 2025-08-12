@@ -1,3 +1,4 @@
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3126fmw2f6cuhyykbxzkfgyn7ize&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 <img width="2800" height="250" alt="IMG_2262" src="https://github.com/user-attachments/assets/a2eaf0e4-6028-463d-9a68-bd6b9513f427" />
  
 <p align="center">" if <em><strong>i see you</strong></em> around <ins>su - ho 's hospital</ins> again , i 'll <em>kill</em> you <strong>ALL</strong> . " </p>
