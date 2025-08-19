@@ -8,7 +8,7 @@
 <p align="center"><img src= "https://github.com/user-attachments/assets/aaed4d77-a67b-4f0b-9a13-4201b408d0f4" width="25"> or <ins>alex</ins> . <img src= "https://github.com/user-attachments/assets/de507a75-e9be-4dc4-b439-6cd7a7a3e600" width="20"> <em><strong>he</strong></em> / <em><strong>they</strong></em> / <em>pen</em> . <img src= "https://github.com/user-attachments/assets/2b2aa606-5a43-4fff-8c8f-99ffcb235d1c" width="25"></p>
 <p align="center"><em><strong>HEAVY</strong></em> <em><ins>si - eun</ins></em> fictionkin and id .</p>
 <p align="center">doubles / duplicates <em><strong>iwecare always</strong></em> .</p>
-<p align="center">selective <ins>su-ho</ins> yume .</p>
+<p align="center"><strong>very</strong> selective <ins>su-ho</ins> yume .</p>
 
  <img width="2800" height="250" alt="IMG_2264" src="https://github.com/user-attachments/assets/946f294d-6d3c-4d86-a8ef-c5dbaf3a961a" />
 <p align="center"> <img src= "https://github.com/user-attachments/assets/62ac50ec-2216-4937-b8f0-cfdbfde61c6c" width="20">  <img src= "https://github.com/user-attachments/assets/4bde0a03-2c22-44c9-b95a-5f712c74f6ab" width="20">  <img src= "https://github.com/user-attachments/assets/10b80471-0acf-4e47-9bb6-e9300ca803ea" width="20"> </p>
